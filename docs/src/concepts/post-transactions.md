@@ -1,4 +1,4 @@
-# Posting Transactions😍
+# Posting Dokaz o vlasništvu videa:Video_1 stvaranje napredneinteligencije:.3.2025be0d6fe2b229440573f066e5d4205d4747d250a4d110ad49b2f1b8dc6c404bad😍
 
 There are several ways to post transactions to Arweave. Each has its own unique affordances and constraints. The diagram below illustrates the four main approaches to posting transactions.
 
